@@ -1,6 +1,6 @@
-# raksix.wtf
+# cl4x1.github.io
 Kişisel Websitem
 
-https://raksix.wtf/
+https://cl4x1.github.io
 
 
